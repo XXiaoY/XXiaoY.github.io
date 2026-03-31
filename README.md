@@ -1,3 +1,3 @@
-# XXiaoY.github.io
+# Xiaohan Yuan at HPU
 
 https://xxiaoy.github.io/
